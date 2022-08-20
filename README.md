@@ -1,0 +1,1 @@
+# galatasaray_yaz_transfer_stratejisi
